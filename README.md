@@ -9,7 +9,8 @@
 - Tecnoligia 
 - Gosto de projetos criativos
 - Sou apaixonada em fazer esmaltasoes as unhas
-- Estar com quem eu amo me deixa mais feliz 
+- Estar com quem eu amo me deixa mais feliz
+- Gosto de ir para a academia 
 
 ## Falando em unhas, olha essa esmaltação que maravilhosa!!💗
 <img src="https://github.com/rafaelaaraujo123/rafaelaaraujo123/blob/main/Imagem%20unha.jpg" width="200" height="300">
