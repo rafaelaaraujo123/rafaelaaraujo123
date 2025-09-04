@@ -13,6 +13,6 @@
 - Gosto de ir para a academia 
 
 ## Falando em unhas, olha essa esmaltação que maravilhosa!!💗
-<img src="https://github.com/rafaelaaraujo123/rafaelaaraujo123/blob/main/Imagem%20unha.jpg" width="200" height="300">
+<img src="https://tse2.mm.bing.net/th/id/OIP.6hmWns7SjRfFzS96ZV29RgHaHa?r=0&cb=thfvnextucfimg=1&rs=1&pid=ImgDetMain&o=7&rm=3" width="200" height="300">
  
 
